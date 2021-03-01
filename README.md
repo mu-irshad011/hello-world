@@ -1,4 +1,4 @@
 # hello-world
 
 hey..!
-I am new hear, anyone hear to guide me...!!!
+I am new here, anyone here to guide me...!!!
